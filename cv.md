@@ -31,4 +31,5 @@ CS50 courses.
 
 ## English ##
 
+English - Pre-intermediate (I finished courses at Streamline last year). I am studying at the Intermediate level now.
 
